@@ -1,2 +1,2 @@
 Creating a new branch is quick and simple.
-Work hard!
+Work hard and carry on!
